@@ -1,1 +1,0 @@
-# yoyaku.kari.github.io-trial
